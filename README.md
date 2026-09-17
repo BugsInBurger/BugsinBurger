@@ -27,7 +27,7 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
 <p align="center">
 </p>
 <p align="center">
-  <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
+  <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> ↑ discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
 </p>
 
 <img src="https://files.catbox.moe/v5ammp.gif" width="400"/>
