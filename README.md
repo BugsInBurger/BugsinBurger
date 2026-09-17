@@ -5,6 +5,10 @@ wip wip wip wip hbghhbhg
 </p>
 
 <p align="center">
+<img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="150"/>
+</p>
+
+<p align="center">
   <img src="https://files.catbox.moe/d6nkaf.png" width="300"/>
 </p>
 
