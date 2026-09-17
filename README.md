@@ -9,7 +9,7 @@ wip wip wip wip hbghhbhg
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/d6nkaf.png" width="300"/>
+  <img src="https://files.catbox.moe/7tj4gw.png" width="300"/>
 </p>
 
 <p align="center">
