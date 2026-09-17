@@ -1,7 +1,7 @@
 wip wip wip wip hbghhbhg
 
 <p align="center">
-  <img src="https://files.catbox.moe/jphebl.png" width="300"/>
+  <img src="https://files.catbox.moe/jphebl.png" width="400"/>
 </p>
 
 <p align="center">
@@ -13,7 +13,7 @@ wip wip wip wip hbghhbhg
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/9nvogo.png" width="400"/>
+  <img src="https://files.catbox.moe/d866g2.webp" width="400"/>
 </p>
 
 <p align="center">
@@ -33,6 +33,6 @@ wip wip wip wip hbghhbhg
   </a>
 </p>
 
-<img src="https://files.catbox.moe/nkvoh9.gif" width="400"/>
+<img src="https://files.catbox.moe/jqvw1c.gif" width="400"/>
 
 <img src="https://files.catbox.moe/fkpruw.png" width="400"/>
