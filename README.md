@@ -5,7 +5,7 @@ wip wip wip wip hbghhbhg
 </p>
 
 <p align="center">
-<img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="150"/>
+<img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="180"/>
 </p>
 
 <p align="center">
@@ -16,12 +16,14 @@ wip wip wip wip hbghhbhg
   <img src="https://files.catbox.moe/d866g2.webp" width="400"/>
 </p>
 
+<div align="center">
+
+  [<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://discord.com/users/896331623212134442)
+   <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
+[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://www.tiktok.com/@bugsinburger)
+<img src="https://files.catbox.moe/4386rj.gif" width="21"/>
+[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://discord.com/users/896331623212134442)
 <p align="center">
-<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>
-   
-<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>
-   
-<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>
 </p>
 <p align="center">
   <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
