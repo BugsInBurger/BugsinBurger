@@ -7,6 +7,8 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
 <img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="180"/>
 </p>
 
+<img src="https://files.catbox.moe/01vf5u.gifv" width="400"/>
+
 <p align="center">
   <img src="https://files.catbox.moe/7tj4gw.png" width="300"/>
 </p>
@@ -28,7 +30,7 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
   <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
 </p>
 
-<img src="https://files.catbox.moe/01vf5u.gifv" width="400"/>
+<img src="https://files.catbox.moe/v5ammp.gif" width="400"/>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
