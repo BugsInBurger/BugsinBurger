@@ -1,5 +1,4 @@
-wip wip wip wip hbghhbhg
-
+wip wip wip wip hbghhbhg why is catbox doesn't WORK
 <p align="center">
   <img src="https://files.catbox.moe/jphebl.png" width="500"/>
 </p>
@@ -29,6 +28,8 @@ wip wip wip wip hbghhbhg
   <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
 </p>
 
+<img src="https://files.catbox.moe/01vf5u.gifv" width="400"/>
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mhgiu65z4hhtpkugvocnkqlvby&cover_image=false&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=57d100&bar_color_cover=false">
@@ -38,6 +39,10 @@ wip wip wip wip hbghhbhg
 <p align="center">
 <img src="https://files.catbox.moe/jqvw1c.gif" width="400"/>
 </p>
+
+<img src="https://files.catbox.moe/h0ljiu.gif" width="80"/>
+<img src="https://files.catbox.moe/isqdqg.gif" width="80"/>
+<img src="https://files.catbox.moe/9w289k.gif" width="80"/>
 
 <p align="center">
 <img src="https://files.catbox.moe/fkpruw.png" width="500"/>
