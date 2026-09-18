@@ -73,7 +73,8 @@ I love eating burgers and playing Minecraft
 · Cold Front
 · Bojack Horseman
 · adventure time
-· Regretevator ·
+· Regretevator
+· Inside job
 
 Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
