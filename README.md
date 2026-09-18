@@ -22,7 +22,7 @@
    <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
 [<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://www.tiktok.com/@bugsinburger)
 <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
-[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://discord.com/users/896331623212134442)
+[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://bugsburger.atabook.org/)
 <p align="center">
 </p>
 <p align="center">
