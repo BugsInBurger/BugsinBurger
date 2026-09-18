@@ -1,4 +1,3 @@
-wip wip wip wip hbghhbhg why is catbox doesn't WORK
 <p align="center">
   <img src="https://files.catbox.moe/jphebl.png" width="500"/>
 </p>
@@ -7,10 +6,10 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
 <img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="180"/>
 </p>
 
-<img src="https://files.catbox.moe/01vf5u.gifv" width="400"/>
+<img src="https://files.catbox.moe/lxxynz.gif" width="400"/>
 
 <p align="center">
-  <img src="https://files.catbox.moe/7tj4gw.png" width="300"/>
+  <img src="https://files.catbox.moe/7tj4gw.png" width="400"/>
 </p>
 
 <p align="center">
@@ -34,7 +33,7 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
 
 <div align="center">
   <details>
-    <summary><u>abt me</u></summary
+    <summary><u>abt me <img src="https://files.catbox.moe/b9hxlw.gif" width="15"/></u></summary
     <br>
     Hi hi hello !!! ^_^ I'm Sasha (or Burger, or BBurger)
 I love eating burgers and playing Minecraft
@@ -55,10 +54,11 @@ I love eating burgers and playing Minecraft
 
 <div align="center">
   <details>
-    <summary><u>Favourite stuff!!</u></summary
+    <summary><u>Favourite stuff!! <img src="https://files.catbox.moe/m15e10.gif" width="15"/></u></summary
     <br>
 
-  My fandoms!! (I can't remember them all ok):
+ 
+  Fandoms (I can't remember them all ok):
 
 · Rick and Morty
 · Smiling Friends
@@ -73,7 +73,7 @@ I love eating burgers and playing Minecraft
 · Bojack Horseman
 · adventure time ·
 
-Favourite artists!
+Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
 · Snot
 · Птицу емъ (ptitsu em)
@@ -90,7 +90,7 @@ Favourite artists!
 
 <div align="center">
   <details>
-    <summary><u>DNI (do not interact)</u></summary
+    <summary><u>DNI <img src="https://files.catbox.moe/26ic45.gif" width="15"/> (do not interact)</u></summary
     <br>
 
 · Basic (homophobes, transphobes, racists, pedophiles, zoophiles, and other weird stuff)
