@@ -36,19 +36,19 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
   <details>
     <summary><u>abt me</u></summary
     <br>
-    Hi hi hello! I'm Sasha (or Burger, or BBurger)
+    Hi hi hello !!! ^_^ I'm Sasha (or Burger, or BBurger)
 I love eating burgers and playing Minecraft
     I'm very #cool and #NOTALoser
 
 · Enneagram: sx9w1 (946)
 
-· I'm very shy and anxious, so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything!
+· I'm very shy and anxious, so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything
 
 · Sometimes I can make rude jokes, just let me know if I offend you
 
 · I don't use tonetags, but I can if you ask me !! I care abt you ok
 
-· English isn't my first language, so I can sound clumsy or confusing,, Sorreh DX
+· English isn't my first language & I'm dyslexic, so I can sound clumsy or confusing,, Sorreh DX
 
 </details>
 </div>
@@ -71,6 +71,7 @@ I love eating burgers and playing Minecraft
 · Steven Universe
 · Cold Front
 · Bojack Horseman
+· adventure time ·
 
 Favourite artists!
 
@@ -86,6 +87,21 @@ Favourite artists!
 
 </details>
 </div>
+
+<div align="center">
+  <details>
+    <summary><u>DNI (do not interact)</u></summary
+    <br>
+
+· Basic (homophobes, transphobes, racists, pedophiles, zoophiles, and other weird stuff)
+
+· Dark / Com / Proshippers. I don't care if it's "just pixels", go away brooo you STINKkk. Or at least don't mention it around me, eugh
+
+· People who joke about problematic stuff, neurodivergence, LGBTQ, or tragedies
+    
+</details>
+</div>
+
 
 <p align="center">
 <img src="https://files.catbox.moe/jqvw1c.gif" width="400"/>
