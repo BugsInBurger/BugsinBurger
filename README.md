@@ -32,11 +32,60 @@ wip wip wip wip hbghhbhg why is catbox doesn't WORK
 
 <img src="https://files.catbox.moe/v5ammp.gif" width="400"/>
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mhgiu65z4hhtpkugvocnkqlvby&cover_image=false&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=57d100&bar_color_cover=false">
-  </a>
-</p>
+<div align="center">
+  <details>
+    <summary><u>abt me</u></summary
+    <br>
+    Hi hi hello! I'm Sasha (or Burger, or BBurger)
+I love eating burgers and playing Minecraft
+    I'm very #cool and #NOTALoser
+
+· Enneagram: sx9w1 (946)
+
+· I'm very shy and anxious, so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything!
+
+· Sometimes I can make rude jokes, just let me know if I offend you
+
+· I don't use tonetags, but I can if you ask me !! I care abt you ok
+
+· English isn't my first language, so I can sound clumsy or confusing,, Sorreh DX
+
+</details>
+</div>
+
+<div align="center">
+  <details>
+    <summary><u>Favourite stuff!!</u></summary
+    <br>
+
+  My fandoms!! (I can't remember them all ok):
+
+· Rick and Morty
+· Smiling Friends
+· Elevator Hitch
+· Dead Plate
+· Alien Stage
+· SFAWTDE
+· senchous
+· gasa4
+· Steven Universe
+· Cold Front
+· Bojack Horseman
+
+Favourite artists!
+
+· Snot
+· Птицу емъ (ptitsu em)
+· 4-ая позиция бруно (4th position Bruno)
+· Deftones
+· Radiohead
+· Mitski
+· The Garden
+· Lemon Demon
+· Any nu-metal!!! I love nu metal :D
+
+</details>
+</div>
 
 <p align="center">
 <img src="https://files.catbox.moe/jqvw1c.gif" width="400"/>
