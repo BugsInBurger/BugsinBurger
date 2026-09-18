@@ -58,7 +58,7 @@ I love eating burgers and playing Minecraft
     <br>
 
  
-  Fandoms (I can't remember them all ok):
+  Fandoms ! (I can't remember them all ok)
 
 · Rick and Morty
 · Smiling Friends
