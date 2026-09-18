@@ -41,7 +41,7 @@ I love eating burgers and playing Minecraft
 
 · Enneagram: sx9w1 (946)
 
-· I'm very shy and anxious, so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything
+· I'm very shy and anxious and awkward ASF so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything
 
 · Sometimes I can make rude jokes, just let me know if I offend you
 
