@@ -58,7 +58,7 @@ I love eating burgers and playing Minecraft
     <br>
 
  
-  Fandoms ! (I can't remember them all ok)
+  Fandoms ! (I can't remember them all ok,,, wip)
 
 · Rick and Morty
 · Smiling Friends
@@ -72,7 +72,8 @@ I love eating burgers and playing Minecraft
 · Steven Universe
 · Cold Front
 · Bojack Horseman
-· adventure time ·
+· adventure time
+· Regretevator ·
 
 Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
