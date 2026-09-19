@@ -75,6 +75,7 @@ I love eating burgers and playing Minecraft
 · adventure time
 · Regretevator
 · Inside job
+· Gravity Falls ·
 
 Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
