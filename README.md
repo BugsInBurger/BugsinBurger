@@ -33,7 +33,7 @@
 
 <div align="center">
   <details>
-    <summary><u>abt me <img src="https://files.catbox.moe/b9hxlw.gif" width="15"/></u></summary
+    <summary><u>abt me :trollface:<img src="https://files.catbox.moe/b9hxlw.gif" width="15"/></u></summary
     <br>
     Hi hi hello !!! ^_^ I'm Sasha (or Burger, or BBurger)
 I love eating burgers and playing Minecraft
