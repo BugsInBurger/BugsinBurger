@@ -100,7 +100,7 @@ Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
 · Dark / Com / Proshippers. I don't care if it's "just pixels", go away brooo you STINKkk. Or at least don't mention it around me, eugh
 
-· People who joke about problematic stuff, neurodivergence, LGBTQ, or tragedies
+· People who joke about problematic stuff
 
 · boundary breakers
     
