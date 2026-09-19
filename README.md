@@ -60,23 +60,25 @@ I love eating burgers and playing Minecraft
  
   Fandoms ! (I can't remember them all ok,,, wip)
 
-· Rick and Morty
+· Rick And Morty
 · Smiling Friends
 · Elevator Hitch
 · Dead Plate
-· Spooky month
+· Spooky Month
 · Alien Stage
 · SFAWTDE
-· senchous
-· gasa4
+· Senchous
+· GASA4
 · Steven Universe
 · Cold Front
 · Bojack Horseman
-· adventure time
+· Adventure Time
 · Regretevator
-· Inside job
+· Inside Job
 · Gravity Falls
-· Stanley parable ·
+· Stanley Parable
+· Regular Show
+· Mouthwashing
 
 Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
