@@ -49,6 +49,14 @@ I love eating burgers and playing Minecraft
 
 · English isn't my first language & I'm dyslexic, so I can sound clumsy or confusing,, Sorreh DX
 
+· Morty's biggest kinnie !!
+
+<p align="center">
+  <img src="https://files.catbox.moe/wzfpq0.png" width="400"/>
+</p>
+
+
+
 </details>
 </div>
 
