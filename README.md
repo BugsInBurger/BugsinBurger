@@ -66,7 +66,7 @@ I love eating burgers and playing Minecraft
 · Dead Plate
 · Spooky Month
 · Alien Stage
-· SFAWTDE
+· Searching For A World That Doesn't Exist
 · Senchous
 · GASA4
 · Steven Universe
@@ -79,7 +79,8 @@ I love eating burgers and playing Minecraft
 · Stanley Parable
 · Regular Show
 · Mouthwashing
-· Moral Orel ·
+· Moral Orel
+· No, I'm not a human
 
 Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
