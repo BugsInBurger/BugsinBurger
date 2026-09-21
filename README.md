@@ -6,7 +6,10 @@
 <img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="180"/>
 </p>
 
+<p align="center">
 <img src="https://files.catbox.moe/lxxynz.gif" width="400"/>
+</p>
+
 
 <p align="center">
   <img src="https://files.catbox.moe/7tj4gw.png" width="400"/>
