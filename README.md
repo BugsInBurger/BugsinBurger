@@ -42,7 +42,7 @@
 I love eating burgers and playing Minecraft
     I'm very #cool and #NOTALoser
 
-· sx/so9w1 (926) INTP
+· sx/so9w1 (926) ISFJ LFEV
 
 · I'm very shy and anxious and awkward ASF so I'll probably be silent or distant at first,,, It doesn't mean I hate you or anything
 
