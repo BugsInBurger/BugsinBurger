@@ -116,7 +116,7 @@ Artists ! <img src="https://files.catbox.moe/fdau1r.gif" width="15"/>
 
 · Basic (homophobes, transphobes, racists, pedophiles, zoophiles, and other weird stuff)
 
-· Dark / Com / Proshippers. go away brooo you STINKkk. Or at least don't mention it around me,,,
+· proshippers
 
 · People who joke about problematic stuff
 
